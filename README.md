@@ -1,4 +1,3 @@
- 
-  ![image](https://github.com/GabriellaMoura7/GabriellaMoura7/assets/159180575/e34f611d-4144-4d76-a214-04b602789c5e)
+![image](https://github.com/GabriellaMoura7/GabriellaMoura7/assets/159180575/ccc12be1-f2a0-439a-a692-e9afe7696d83)
 
                           
